@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot updated Script offers the most advanced steal a brainrot Script, with god mode and no clip. Perfect for dominating any match.
 
 
 
